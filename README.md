@@ -1,1 +1,1 @@
-# consequntialpoetry
+# consequentialpoetry
